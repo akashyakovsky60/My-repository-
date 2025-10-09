@@ -12,4 +12,8 @@ City hyderabad India
 
 mobile phone number +918121286039
 
-https://maps.app.goo.gl/Gos5qcUphj9VLXvMA apartment 201 is my current address 
+https://maps.app.goo.gl/Gos5qcUphj9VLXvMA apartment 201 is my current residence address 
+
+https://maps.app.goo.gl/tTdbYGchSoeQpnsCA my official residence 
+
+Both are diplomatic enclaves
