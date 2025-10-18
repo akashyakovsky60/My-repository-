@@ -6,6 +6,10 @@ https://wa.me/918121286039
 https://t.me/akashyakovsky2
 akashyakovsky60@gmail.com 
 
+https://www.facebook.com/share/1DSy2ZRi88/
+
+https://x.com/AkashYakov32071?t=FsBCesk-AFe_dJkvAGtppQ&s=09
+
 country Liechtenstein 
 
 City hyderabad India 
