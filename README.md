@@ -12,6 +12,8 @@ https://x.com/AkashYakov32071?t=FsBCesk-AFe_dJkvAGtppQ&s=09
 
 https://pin.it/2dG7fWHOX
 
+https://www.threads.com/@yakovskyakash
+
 country Liechtenstein 
 
 City hyderabad India 
