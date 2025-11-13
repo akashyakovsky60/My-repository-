@@ -14,6 +14,8 @@ https://pin.it/2dG7fWHOX
 
 https://www.threads.com/@yakovskyakash
 
+https://medium.com/@akashyakovsky60
+
 country Liechtenstein 
 
 City hyderabad India 
