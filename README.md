@@ -7,8 +7,9 @@ https://t.me/akashyakovsky2
 akashyakovsky60@gmail.com 
 
 https://www.facebook.com/akashyakovsky60
+https://www.instagram.com/yakovskyakash
 
-https://x.com/AkashYakov32071?t=FsBCesk-AFe_dJkvAGtppQ&s=09
+https://x.com/AkashYakov32071
 
 https://www.threads.com/@yakovskyakash
 
