@@ -15,8 +15,6 @@ https://x.com/AkashYakov32071
 
 https://www.threads.com/@yakovskyakash
 
-https://medium.com/@akashyakovsky60
-
 National Identity of all territories under my administration and governance 
 
 City hyderabad India 
