@@ -2,14 +2,9 @@
 
 My contact details 
 
-akashyakovsky60@gmail.com 
+akashyakovsky81@gmail.com
 
 https://open.spotify.com/user/31at7sp6cf56jfd5pprkef6yzsdm
-
-https://www.facebook.com/akashyakovsky60
-https://www.instagram.com/yakovskyakash
-
-https://www.threads.com/@yakovskyakash
 
 City hyderabad India 
 
