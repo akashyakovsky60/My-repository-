@@ -2,8 +2,6 @@
 
 My contact details 
 
-https://wa.me/918121286039
-https://t.me/akashyakovsky2
 akashyakovsky60@gmail.com 
 
 https://open.spotify.com/user/31at7sp6cf56jfd5pprkef6yzsdm
@@ -14,8 +12,6 @@ https://www.instagram.com/yakovskyakash
 https://www.threads.com/@yakovskyakash
 
 City hyderabad India 
-
-mobile phone number +918121286039
 
 https://maps.app.goo.gl/VNj6u5hxSz596vxGA my office and residence 1
 
